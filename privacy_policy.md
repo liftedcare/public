@@ -189,6 +189,6 @@ We hold your information only for as long as necessary for each purpose we use i
 ## 13. HOW TO CONTACT US
 
 If you have any questions about this privacy policy or your rights regarding processing your personal information, or wish to make a complaint please contact:
-rachael@lifted-talent.com
+legal@lifted-talent.com
 
-This policy was last updated on 22/07/2024
+This policy was last updated on 23rd June 2026
