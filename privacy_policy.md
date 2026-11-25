@@ -21,7 +21,7 @@ We are recorded on the ICO Data Protection Register under registration number ZA
 
 ## 2. WHO WE ARE
 
-In this policy references to Better Home Care Services Limited, trading as Lifted Talent or SponsorSwitch care are to Better Home Care Services Limited, trading as Lifted Talent or SponsorSwitch, incorporated and registered in England and Wales with company number 11412668 whose registered office is at 9th Floor, 107 Cheapside, London, EC2V 6DN
+In this policy references to Better Home Care Services Limited, trading as Lifted Talent or SponsorSwitch care are to Better Home Care Services Limited, trading as Lifted Talent or SponsorSwitch, incorporated and registered in England and Wales with company number 11412688 whose registered office is at 9th Floor, 107 Cheapside, London, EC2V 6DN
 
 ## 3. WHAT INFORMATION WE COLLECT
 
